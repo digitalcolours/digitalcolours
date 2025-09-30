@@ -4,9 +4,7 @@
 
 ❑ 　 ．　feel free to c + h but I'm typically offtab 
 
-❑ 　 ．　don't use tone indicators w me preferably 
-
-╰ 　⊹　✦　 　If im talking w someone already, whisper or ask to int. I don't like juggling conversations LOL, sorry! (+ I enjoy spending time with friends separately)
+╰ 　⊹　✦　 　don't use tone indicators w me preferably 
 
 <img src="https://i.pinimg.com/736x/0e/84/54/0e8454ced49c16607c68bd18952f4afd.jpg" alt="Story pin image"/>
 
