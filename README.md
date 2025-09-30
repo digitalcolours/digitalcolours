@@ -1,7 +1,6 @@
-## ✧　  ⊹　 Info about me 
 ╭　⊹　✦ 　 I will block/hide freely. 
 
-❑ 　 ．　feel free to c + h freely! 
+❑ 　 ．　feel free to c + h but I'm typically offtab 
 
 ❑ 　 ．　don't use tone indicators w me preferably 
 
@@ -12,4 +11,6 @@
 ╭　⊹　✦ 　Main interests are 
 
 ❑ 　 ．　MCYT (Lifesteal, bliss, ish's states, infuse smp), genshin, crk, webnovels, Seraph of the end.
+
+╰ 　⊹　✦　 　duality duo, mutiny duo, fluxata duo
 
