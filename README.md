@@ -11,4 +11,4 @@
 
  ⠀　   this might look a bit weird depending on your device !
 
-<sup><sub>sign my ata and drop fandom/novel or comic/song reccomendations, or just leave a little message! Idm any! ^_^</sub></sup>
+<sup><sub>　　sign my ata and drop fandom/novel or comic/song reccomendations, or just leave a little message! Idm any! ^_^</sub></sup>
