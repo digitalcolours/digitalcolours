@@ -4,7 +4,8 @@
 
 　　　　　⟢ 　any prns   -   no tone indicators (pref)
 
-<img src="https://i.pinimg.com/originals/e0/14/98/e014989924bd6d4b2bca924c1909d070.gif"/>
+<img src="https://i.pinimg.com/originals/c6/a3/0f/c6a30fa2f13951055eb84eeab6b71b80.gif" alt="This may contain: two cartoon characters standing next to each other"/>
+
 ⠀⠀⠀ 　　　　　⠀꒰ ✿ ꒱⠀⠀main interests
 
    ⠀　　　　　 mcyt ⠀gi⠀**sote/ons**⠀webnovels
