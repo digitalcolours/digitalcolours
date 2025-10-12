@@ -18,5 +18,5 @@
 
  <sup><sub>　　　　　　　　C+H IS SO HEAVILY ENCOURAGED AND INTINGGG IF YOU'RE FUNNY PLSS</sub></sup>
 
- ⠀　 ⠀　　 　 ⠀　 ⠀　    ![Visitor count](https://shields-io-visitor-counter.herokuapp.com/badge?page=digitalcolours.digitalcolours)
+ ⠀　 ⠀　　 　 ⠀　 ⠀　   ![GitHub watchers](https://img.shields.io/github/watchers/digitalcolours/digitalcolours?style=social&label=%E2%99%A1%20views)
 
