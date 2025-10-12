@@ -17,3 +17,6 @@
  ⠀　 ⠀　　 　 https://digitalcolours.atabook.org/
 
  <sup><sub>　　　　　　　　C+H IS SO HEAVILY ENCOURAGED AND INTINGGG IF YOU'RE FUNNY PLSS</sub></sup>
+
+ ![GitHub watchers](https://img.shields.io/github/watchers/digitalcolours/digitalcolours?label=%E2%99%A1%20views)
+
