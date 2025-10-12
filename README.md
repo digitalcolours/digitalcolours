@@ -18,5 +18,4 @@
 
  <sup><sub>　　　　　　　　C+H IS SO HEAVILY ENCOURAGED AND INTINGGG IF YOU'RE FUNNY PLSS</sub></sup>
 
- ⠀　 ⠀　　 　 ⠀　 ⠀　   ![GitHub watchers](https://img.shields.io/github/watchers/digitalcolours/digitalcolours?style=social&label=%E2%99%A1%20views)
 
