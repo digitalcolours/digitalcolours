@@ -14,7 +14,7 @@
 
 <sup><sub>　　　　　 sign my ata and drop fandom/novel or comic/song reccomendations, or just leave a little message! Idm any! ^_^</sub></sup>
 
- ⠀　 ⠀　　 　 　　　　https://digitalcolours.atabook.org/
+ ⠀　 ⠀　　 　 　　　https://digitalcolours.atabook.org/
 
  <sup><sub>　　　　　　　　　　　　 　C+H IS SO HEAVILY ENCOURAGED AND INTINGGG IF YOU'RE FUNNY PLSS</sub></sup>
 
