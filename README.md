@@ -1,6 +1,6 @@
 　　　　　 　　　　🐬　　⸜(｡> ᵕ < )⸝♡　　**re**n or **kae**la
 
-⠀　　　　　 　　　　c + h　　‿‿　　blocking <ins>freely</ins>	  　♡⠀⠀⸝⸝     
+⠀　　　　　 　　　　c + h **ENCOURAGED!!!**　　‿‿　　blocking <ins>freely</ins>	  　♡⠀⠀⸝⸝     
 
 　　　　 　　　　⟢ 　any prns   -   no tone indicators (pref)
 
