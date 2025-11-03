@@ -9,6 +9,6 @@
 <div align="center"><sup><sub>　C+H IS SO HEAVILY ENCOURAGED AND INTINGGG IF YOU'RE FUNNY PLSS</sub></sup>
 
 
- <div align="center">![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=★fish+counted)
+ ![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=★fish+counted)
 
 
