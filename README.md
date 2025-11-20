@@ -8,6 +8,6 @@
 <div align="center"><sup><sub>　C+H IS SO HEAVILY ENCOURAGED AND INTINGGG IF YOU'RE FUNNY PLSS</sub></sup>
 
 
- ![](https://komarev.com/ghpvc/?username=digitalcolours&color=purple&label=♱)
+ ![](https://komarev.com/ghpvc/?username=digitalcolours&color=#a59fab&label=♱)
 
 
