@@ -5,6 +5,10 @@
   <img src=https://i.imgur.com/bZ4aSBM.pngmaxwidth=760&fidelity=grand>
 </p>
 
- <p align="center">![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=♱)
+<div align="center"><sup><sub>　C+H IS SO HEAVILY ENCOURAGED AND INTINGGG IF YOU'RE FUNNY PLSS</sub></sup>
+
+
+ ![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=♱)
+
 
 
