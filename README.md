@@ -4,6 +4,7 @@
 <p align="center">
   <img src=https://i.imgur.com/bZ4aSBM.pngmaxwidth=760&fidelity=grand>
 </p>
+<p align="center">ﾁｭ ໋⠀⠀        C+H enc heavily !⠀ ⠀⠀  ₊ㅤ     レ
 
 <div align="center"><sup><sub>Sign my ata!!!!</sub></sup>
 
