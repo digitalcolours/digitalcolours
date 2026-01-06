@@ -10,6 +10,8 @@
 
 <div align="center"><sup><sub>https://digitalcolours.atabook.org/</sub></sup>
 
+<div align="center"><sup><sub>normally afking maxxing on pt</sub></sup>
+
 
  ![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=♱)
 
