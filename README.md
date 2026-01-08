@@ -4,17 +4,14 @@
 </p>
 
 
-<p align="center">                  ֪    ◟  𓏼  ͡ ֪      ◝◞  ྀི︶˚̣̣̣
-             ◜⑅     minor     ͜◞      ꒱     I luv my friends
+<p align="center">
+                    𑣲      minor   　𝄞      kaiwa ^_^
 
 <div align="center"><sup><sub>Sign my ata!!!!</sub></sup>
 
 <div align="center"><sup><sub>https://digitalcolours.atabook.org/</sub></sup>
 
-<div align="center"><sup><sub>normally afking maxxing on pt</sub></sup>
-
-
- ![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=♱)
+  ![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=♱)
 
 
 
