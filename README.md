@@ -4,7 +4,8 @@
 </p>
 
 
-<p align="center">ﾁｭ ໋⠀⠀        C+H enc heavily !⠀ ⠀⠀  ₊ㅤ     レ
+<p align="center">                  ֪    ◟  𓏼  ͡ ֪      ◝◞  ྀི︶˚̣̣̣
+             ◜⑅     minor     ͜◞      ꒱     I luv my friends
 
 <div align="center"><sup><sub>Sign my ata!!!!</sub></sup>
 
