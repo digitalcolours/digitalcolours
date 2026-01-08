@@ -2,8 +2,9 @@
 <p align="center"> ೀ⠀ ⠀ she¹⠀ ⠀⠀゛⠀him² ⠀⠀ ⠀𓏵
 <p align="center">ﾁｭ ໋⠀⠀         mcyt, gi, crk, nns are my fav interests ^_^⠀ ⠀⠀  ₊ㅤ     レ
 <p align="center">
-  <img src=https://imgur.com/a/xEx4rFF.pngmaxwidth=760&fidelity=grand>
+  <img src="https://i.imgur.com/c9HTrVG.png" width="400" />
 </p>
+
 <p align="center">ﾁｭ ໋⠀⠀        C+H enc heavily !⠀ ⠀⠀  ₊ㅤ     レ
 
 <div align="center"><sup><sub>Sign my ata!!!!</sub></sup>
