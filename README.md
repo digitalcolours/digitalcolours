@@ -2,9 +2,7 @@
 <p align="center">
   <img src="https://i.imgur.com/HdRXOVp.png" width="400" />
 </p>
-<p align="center">
-                    𑣲      minor   　𝄞      kaiwa ^_^
-
+<p align="center">                    𑣲      minor   　𝄞      kaiwa ^_^
 
 <div align="center"><sup><sub>https://digitalcolours.atabook.org/</sub></sup>
 
