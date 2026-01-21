@@ -10,7 +10,7 @@
 
 <div align="center"><sup><sub>https://digitalcolours.atabook.org/</sub></sup>
 
-  ![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=♱)
+  ![](https://komarev.com/ghpvc/?username=digitalcolours&color=orange&label=♱)
 
 
 
