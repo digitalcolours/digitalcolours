@@ -2,8 +2,6 @@
 <p align="center">
   <img src="https://i.imgur.com/HdRXOVp.png" width="400" />
 </p>
-
-
 <p align="center">
                     𑣲      minor   　𝄞      kaiwa ^_^
 
