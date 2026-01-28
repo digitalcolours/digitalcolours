@@ -4,6 +4,7 @@
 </p>
 <p align="center">                    𑣲      minor   　𝄞      kaiwa ^_^
 <p align="center">                    I'm 16, and I'm a huge omnivert but int with me pls
+<p align="center">                    i follow back, but i dont follow back spam followers sowry 🥺
 
 <div align="center"><sup><sub>https://digitalcolours.atabook.org/</sub></sup>
 
