@@ -1,14 +1,12 @@
 
 <p align="center">
-  <img src="https://i.imgur.com/HdRXOVp.png" width="400" />
+  <img src="https://i.imgur.com/25YpEzD.png" width="400" />
 </p>
-<p align="center">                    𑣲      minor   　𝄞      kaiwa ^_^
-<p align="center">                    I'm 16, and I'm a huge omnivert but int with me pls
-<p align="center">                    i follow back, but i dont follow back spam followers sowry 🥺
-
+<p align="center">                      ֪   ཀ`  kaela/ren  ╋━  ɞ    
+<p align="center">                   ꒰　she/him　꒱⠀⠀𓎢𓎟𓎟𓎡⠀⠀omnivert ⠀
 <div align="center"><sup><sub>https://digitalcolours.atabook.org/</sub></sup>
-
-  ![](https://komarev.com/ghpvc/?username=digitalcolours&color=orange&label=♱)
+ 
+ ![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=♱)
 
 
 
