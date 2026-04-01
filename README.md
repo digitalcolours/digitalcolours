@@ -1,10 +1,7 @@
 
-<p align="center">
-  <img src="https://i.imgur.com/25YpEzD.png" width="400" />
-</p>
-<p align="center">                      ֪   ཀ`  kaela/ren  ╋━  ɞ    
-<p align="center">                   ꒰　she/him　꒱⠀⠀𓎢𓎟𓎟𓎡⠀⠀omnivert ⠀
-<div align="center"><sup><sub>https://digitalcolours.atabook.org/</sub></sup>
+<p align="center">( 𓏼´⠀ ᩙᩙ`𓏼)ഒㅤ ◞།ི   ⁺  Kaela  𓏼ㅤ໒⠀   
+<p align="center">   ཀ`  omnivert & offtab     　ꪆ
+<p align="center">♩ ₊ 𓎟𓎟   [sign my ata](https://digitalcolours.atabook.org/)  ໒>
  
  ![](https://komarev.com/ghpvc/?username=digitalcolours&color=blue&label=♱)
 
